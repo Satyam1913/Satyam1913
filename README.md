@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Satyam
-**A passionate Cloud Engineer || DevOps Engineer || Kafka Admin from India**
+**A passionate Software Engineer**
 
 Email Me 👉 ✉️ **satyamsrivastava1913@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
