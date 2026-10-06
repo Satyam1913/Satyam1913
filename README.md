@@ -3,14 +3,14 @@
 
 Email Me 👉 ✉️ **satyamsrivastava1913@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently working on:** Enter your project info here
-- 🌱 **I’m currently learning:** Enter your tech here
-- 👯 **I’m looking to collaborate on:** Enter your project name and info
-- 🤔 **I’m looking for help with:** Your project here
+- 🔭 **I’m currently working on:** _ 
+- 🌱 **I’m currently learning:** _
+- 👯 **I’m looking to collaborate on:** _
+- 🤔 **I’m looking for help with:** _
 - 💬 **Ask me about:** 
 - 📫 **How to reach me:** satyamsrivastava1913@gmail.com
 - 😄 **Pronouns:** Satyam
-- ⚡ **Fun fact:** I Love Tech and Tech Love Me
+- ⚡ **Fun fact:** 
 ## 🌐 Socials:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/https://discord.gg/MhhJFcBqB) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/subjugator1913) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/satyam-srivastava) [![Reddit](https://img.shields.io/badge/Reddit-%23FF4500.svg?logo=Reddit&logoColor=white)](https://reddit.com/user/Aware-Income1728) [![Codepen](https://img.shields.io/badge/Codepen-000000?logo=codepen&logoColor=white)](https://codepen.io/@rgwmgeet-the-animator) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:satyamsrivastava1913@gmail.com) 
 
